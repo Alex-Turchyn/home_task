@@ -1,6 +1,6 @@
 
 
-Wonderful Wonderful Copenhagen!
+Wonderful Wonderful Copenhagen!Bang bang!
 
 Wonderful Wonderful Cooopenhagen!!!!
 
